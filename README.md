@@ -1,1 +1,1 @@
-# minjeongHEO.github.io
+# minjeongheo.github.io
